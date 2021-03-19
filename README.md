@@ -1,1 +1,3 @@
-# balajar1.1
+**Veni Wigiyant** 
+**6701190050**
+**Assesment 1**
